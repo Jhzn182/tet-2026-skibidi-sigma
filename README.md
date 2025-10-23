@@ -5,4 +5,4 @@
 Ae nào muốn dùng thì tải về nhé! Free hết mà =))
 # MXH của toi
 ⓕ:Js Jhann
-<wa-icon name="discord" family="brands"></wa-icon> _jhzn182
+Discord:_jhzn182
